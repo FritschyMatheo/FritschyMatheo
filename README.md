@@ -1,3 +1,3 @@
 Matheo Fritschy
 
-Actuellement en première année de BUT Réseaux et Télécommunications
+Actuellement troisième année de BUT R&T.
