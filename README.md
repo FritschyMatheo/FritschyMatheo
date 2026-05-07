@@ -1,3 +1,1 @@
-Matheo Fritschy
-
-Actuellement troisième année de BUT R&T.
+Matheo Fritschy, étudiant en école d'ingénieur en informatique en Alsace.
